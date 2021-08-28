@@ -13,4 +13,7 @@
 
 ## Contacts
 
-### Feel free to contact me on discord `@Тhе buttег mаn bоbi#4190`. *(that's basically the only social media i actively use)*
+### Feel free to contact me on discord or add me on TETR.IO!
+
+**TETR.IO:** bobs  
+**discord:** @Тhе buttег mаn bоbi#4190
